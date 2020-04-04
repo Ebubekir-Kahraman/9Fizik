@@ -12,7 +12,7 @@ HAMUR İÇİN:
 
 2 Adet Yumurta
 
-250 gr Margarin
+250 g Margarin
 
 1/4 Bardak Süt
 
@@ -71,7 +71,7 @@ FOR DOUGH:
 
 2 Eggs
 
-250 gr Margarine
+250 g Margarine
 
 1/4 Glass of Milk
 
@@ -117,3 +117,7 @@ Recipe:
 7.Bake the apple pie in a 180 degree heated oven.
 
 8.After the pie is baked, sprinkle with powdered sugar. Our apple pie is ready for service, BON APPETİT!
+
+![](https://i.hizliresim.com/Lehrdt.png)
+
+![](https://i.hizliresim.com/IoRG3S.jpg)

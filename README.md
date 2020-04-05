@@ -121,3 +121,8 @@ Recipe:
 ![](https://i.hizliresim.com/Lehrdt.png)
 
 ![](https://i.hizliresim.com/IoRG3S.jpg)
+
+VÜCUT KİTLE İNDEKSİ
+-------------------
+
+![](https://i.hizliresim.com/2TlalO.png)
